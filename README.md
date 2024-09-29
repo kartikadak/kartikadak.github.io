@@ -1,1 +1,0 @@
-# kartikadak.github.io
